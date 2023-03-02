@@ -1,8 +1,4 @@
-What to do After an Volcanic Eruption
-
-
-
-
+## What to do After an Volcanic Eruption
 
 
 
